@@ -1,4 +1,4 @@
-# Name : Jaspreet Kaur 
+-Name:Jaspreet kaur
 -Father's Name:Avtar Singh
 -Branch:ECE
 -Registration Number:25107499
@@ -13,7 +13,7 @@
 -After that we had taken tea, drinks,soft drinks,and many other refreshments.
 -The break provided good time to relax and interact with fellow students. -Then we went towards the auditorium.
 
-Session 1:
+##Session 1:
 
 -"Dr.Harpreet kaur Garewal",HoD of applied sciences, opened the session with heartfelt welcome and motivational message. 
 -"Dr.Sehijpal singh",Principal, highlighted GNDEC's academic strenghth and the importance of embracing opportunities during college life. 
