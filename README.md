@@ -6,7 +6,9 @@
 - Email: jaspreetksran08@gmail.com
 # Day1(ECE) 30 July 2025
 
-##08:30am to 10:15am -Gurudwara sahib: We went to gurudwara sahib to get blessing of waheguru before starting are journey at GNDEC. -After that,we observed that the shape of gurudwara is similar to ship. -In punjabi, we say,"Waheguru naam jahaz hai,chare so utre paar".
+##08:30am to 10:15am - Gurudwara sahib: We went to gurudwara sahib to get blessing of waheguru before starting are journey at GNDEC. 
+- After that,we observed that the shape of gurudwara is similar to ship.
+- In punjabi, we say,"Waheguru naam jahaz hai,chare so utre paar".
 
 ##10:15am to 10:45am
 
