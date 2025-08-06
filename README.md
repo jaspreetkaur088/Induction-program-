@@ -39,4 +39,6 @@
 - This lecture was a moment of self-reflection and deeper understanding of what truly matters in life — both personally and professionally.
 - #11:00 am to 12:45 pm
 - 2nd lecture
-- Lecture by Arvind Dhingra 
+- Lecture by Arvind Dhingra
+- He delivered a lecture on student development via Science Technology Entrepreneurs'Park (STEP) and TAC.
+- He asked for 6 boys and 6 girls to come up on stage to play a game. I joined them.We played a interesting game.
