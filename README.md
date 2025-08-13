@@ -42,3 +42,5 @@
 - Lecture by Arvind Dhingra
 - He delivered a lecture on student development via Science Technology Entrepreneurs'Park (STEP) and TAC.
 - He asked for 6 boys and 6 girls to come up on stage to play a game. I joined them.We played a interesting game.
+- #1:30pm to 2:30pm
+- There was English proficiency test in F-114 room,
