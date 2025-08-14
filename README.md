@@ -97,4 +97,7 @@ After a refreshing break, we immersed ourselves in a physics lecture with Profes
 - NSS session
 - The highlight of the day was undoubtedly the NSS session. The session kicked off with a soulful shabad, creating a sense of unity. Then, games were organized, which saw everyone laughing and competing.
 - The fun act performed by the NSS volunteers was the perfect end to the day, leaving everyone with smiles and fond memories. It was a day filled with learning, laughter, and a sense of community.
-
+ # Conclusion
+- Looking back, I’m genuinely thankful for the chance to be part of something so meaningful right at the start of my college journey.
+- The induction didn’t just prepare me academically – it gave me confidence, a sense of purpose, and a real connection to the GNDEC community.
+- I’m excited to see where this path leads, and I’m ready to make the most of every opportunity that comes my way.
