@@ -43,4 +43,16 @@
 - He delivered a lecture on student development via Science Technology Entrepreneurs'Park (STEP) and TAC.
 - He asked for 6 boys and 6 girls to come up on stage to play a game. I joined them.We played a interesting game.
 - #1:30pm to 2:30pm
-- There was English proficiency test in F-114 room,
+- There was English proficiency test in F-114 room and maths proficiency test.
+-
+# Day - 3 (04-08-2025)
+- Causmic Club Session
+- The day began with an exciting session with the Causmic Club, sparking curiosity and igniting our imaginations , and we got to know about many events which were organised by Causmic club like APEX , etc.
+-  This was followed by a lecture on universal human values by Dr. Priya Darshni ma'am, which gave us a new perspective on life.
+- #1:30pm to 2:30pm
+- English lecture  
+- After a refreshing break, we dove into an English lecture by Professor Aastik sharma, enhancing our communication skills.
+- #(2:30pm to 3:30pm)
+- P2P lecture
+- The afternoon was highlighted by a P2P (Peer-to-Peer) session with seniors, where we were introduced to the basics of coding (C++), opening up a whole new world of possibilities and skills.
+# Day 4
